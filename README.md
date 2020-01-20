@@ -1,2 +1,0 @@
-# mulife
-MuLife Privacy Policy
